@@ -7,7 +7,7 @@ O momento de doação é único, o fato de se debruçar sobre a necessidade alhe
 causar uma sensação de realização e felicidade incomparável.
 
 ![a](https://user-images.githubusercontent.com/64026100/90312835-2995a380-dede-11ea-880e-0e75286b5798.png)
-![a](https://user-images.githubusercontent.com/64026100/166810385-5fed3cc4-e3c9-442a-b547-03c260d4ad27.png)
+
 
 
 ![b](https://user-images.githubusercontent.com/64026100/90312843-32867500-dede-11ea-927a-cab895038b7e.png)
